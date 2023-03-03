@@ -1,1 +1,1 @@
-Hi I'm Corey. I am interested in human-computer interaction, making, and the occassional filmmaking. I'm currently working on my website https://www.coreyhhowell.com where you can reach me. Otherwise you can email me coreyhhowell@gmail.com. 
+Corey is an interdisciplinary creative who finds satisfaction in building objects and crafting joyful experiences. By building provocative scenarios and artifacts that challenge our assumptions about the future, he hopes to contribute to a more harmonious human-computer interaction. I'm building a website right now. coreyhhowell.com
