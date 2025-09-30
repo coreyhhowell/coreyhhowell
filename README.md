@@ -1,3 +1,3 @@
-Harmonious human-computer interaction. 
+Human-computer interaction and multidisciplinary design. 
 #
-I'm still building but you're welcome to check it out in the mean time. [coreyhhowell.com](https://www.coreyhhowell.com/)
+[coreyhhowell.com](https://www.coreyhhowell.com/)
